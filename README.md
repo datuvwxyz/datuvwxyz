@@ -1,4 +1,7 @@
-## Hi there 👋
+## Hi, mình là datfitzz__👋
+| ![Rainbow Bar GIF](https://c.tenor.com/Xr_cLf5i-Z0AAAAd/tenor.gif) |
+|:---:|
+| ![City GIF](https://c.tenor.com/JO11AZatqkkAAAAd/tenor.gif) |
 
 <!--
 **datuvwxyz/datuvwxyz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
